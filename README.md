@@ -1,4 +1,4 @@
-# Beyond the Bars: Analyzing Cross-Genre Success Among Hip-Hop Artists
+# Analyzing Cross-Genre Success Among Hip-Hop Artists
 
 **Rohit Aryan Rajesh**  
 
